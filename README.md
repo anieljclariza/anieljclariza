@@ -1,1 +1,1 @@
-<video autoplay loop muted src="https://github.com/user-attachments/assets/354c8e3f-89b8-4768-95a5-69115b33fd78"></video>
+![code-purpose-of-life](https://github.com/user-attachments/assets/6f146187-5f21-44f5-93f3-5ecf19c084ee)
