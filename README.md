@@ -1,1 +1,1 @@
-[SoloLearn Certificate.pdf](https://github.com/user-attachments/files/17784496/SoloLearn.Certificate.pdf)
+[https://www.sololearn.com/certificates/CC-AXNCLQUI]([url](https://www.sololearn.com/certificates/CC-AXNCLQUI))
