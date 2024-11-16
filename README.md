@@ -1,1 +1,1 @@
-[](<iframe src="https://giphy.com/embed/quEsMOrr3hmQ8" width="480" height="288" style="" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/matrix-awesome-gifs-gif-quEsMOrr3hmQ8">via GIPHY</a></p>)
+![code-purpose-of-life](https://github.com/user-attachments/assets/ba8c27f5-95ec-4f60-a0b0-79e050b37451)
